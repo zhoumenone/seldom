@@ -300,7 +300,7 @@ https://github.com/defnngj/seldom-api-testing
 
 ### 交流
 
-QQ群：948994709
+QQ：2093349140
 
 
 ## 🔥 company
